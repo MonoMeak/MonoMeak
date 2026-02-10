@@ -28,7 +28,5 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=Sokmeak&icon=0&color=0)](https://visitcount.itsvg.in)
 
-> “Build something you're proud of.”  
-Thanks for visiting my profile! 🙏
 
 
